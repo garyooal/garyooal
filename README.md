@@ -1,4 +1,4 @@
-### Hi there 👋
+### This is the README for GARY mofo double O' AL's profile🍀
 
 <!--
 **garyooal/garyooal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
